@@ -4,4 +4,4 @@
   </a>
 </p>
 ಿৎ ֯ ̣̣̥ ̣ ۫ ִ ⠀::⠀comfort ships ! ⠀ ◞ ⠀
-https://cdn.discordapp.com/attachments/1085060428008276058/1441214347144597575/dcfc5788ae00b637fe07a9c1b9ef5c6b.jpg?ex=6920faf4&is=691fa974&hm=8e047898111bb6dae6bb45402282edcb8953fc3dff28b003a656891cb8158d56&
+
