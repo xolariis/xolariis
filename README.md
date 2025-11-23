@@ -2,7 +2,7 @@
   <a href="https://github.com/kittinan/spotify-github-profile">
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31riu7osrp7skodna7ewqr7gy6na&cover_image=true&theme=natemoo-re&show_offline=true&background_color=ffffff&interchange=true&profanity=false&bar_color=ffffff&bar_color_cover=false">
   </a>
-
+</p>
 
      ⏜︵⊹︵⏜︵୨ `✦` ୧︵⏜︵⊹︵⏜
      helloo, small intro ! I'm xolar
@@ -14,7 +14,7 @@
      homophobia, ect. ) that's all ♡
      ⏝︶⊹︶⏝︶୨ `✦` ୧︶⏝︶⊹︶⏝
 
-    ಿৎ ֯ ̣̣̥ ̣ ۫ ִ ⠀::⠀comfort ships ! ⠀ ◞
+ಿৎ ֯ ̣̣̥ ̣ ۫ ִ ⠀::⠀comfort ships ! ⠀ ◞
 
 
 ![dcfc5788ae00b637fe07a9c1b9ef5c6b.jpg](https://github.com/user-attachments/assets/3598f83c-3127-467f-b263-349bf9749cf8)
