@@ -10,7 +10,7 @@
 
 ![6f0e0dd6daa9c55f80803a069eba7a0a.jpg](https://github.com/user-attachments/assets/24840deb-070f-438a-a6d6-738455c71f77)
 ⸻　 𝑝𝑟𝑖𝑑𝑒𝑑𝑢𝑜 ⸝  `
-![89ae6dd9cbab7dd7a6ab44402e9eb00f.jpg](https://github.com/user-attachments/assets/6b40852f-d705-4a4a-ba1d-d9d745eb8a38)
+![89ae6dd9cbab7dd7a6ab44402e9eb00f.jpg](https://github.com/user-attachments/assets/6b40852f-d705-4a4a-ba1d-d9d745eb8a38) 
 ⸻　𝑠𝑙𝑖𝑚𝑒 𝑘𝑛𝑖𝑔𝒽𝑡 ⸝  ` 
 ![27fa8ecbbdccd7e8896592871430685e.jpg](https://github.com/user-attachments/assets/9bf2f538-a0f6-450c-b4ab-9026ae331966)
 ⸻　 𝑘𝑒𝑟𝑑𝑙𝑦 ⸝  ` 
