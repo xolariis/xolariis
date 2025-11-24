@@ -5,13 +5,15 @@
 </p>
 
      
-     helloo, small intro ! I'm xolar
+      helloo, small intro ! I'm xolar
      / xolaris , often offtab or with 
-     party but feel free to c + h &
+      party but feel free to c + h &
      int ! I have adhd and bpd, so
-     I apologize if I act differently
-     at times. basic dni, (racism -
-     homophobia, ect. ) that's all ♡
+      I apologize if I act differently
+       at times. basic dni, (racism -
+      homophobia, ect. ) I follow ppl
+           with pretty skins !! 
+               that's all ♡
 
 
 ಿৎ ֯ ̣̣̥ ̣ ۫ ִ ⠀::⠀comfort ships ! ⠀ ◞
