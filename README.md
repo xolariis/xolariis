@@ -9,10 +9,10 @@
 
      
       helloo, small intro ! I'm xolar/
-       xolaris/pure vanilla,any & all
-      pronouns ! often offtab or with 
-       party, w2i - c+h & int is enc!
-      I follow ppl with pretty skins ♡
+       xolaris, any & all pronouns !
+      often offtab or with party, w2i
+       - c+h & int is enc! I follow ppl
+            with pretty skins ♡
        that's all ! if you'd like to
       learn more visit my patreon thats
              linked on here ^_^
