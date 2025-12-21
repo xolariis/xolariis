@@ -13,9 +13,7 @@
       often offtab or with party, w2i
        - c+h & int is enc! I follow ppl
             with pretty skins ♡
-       that's all ! if you'd like to
-      learn more visit my patreon thats
-             linked on here ^_^
+              that's all !  ^_^
 
 ಿৎ ֯ ̣̣̥ ̣ ۫ ִ ⠀::⠀ ! ⠀ ◞
 
