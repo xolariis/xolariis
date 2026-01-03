@@ -2,7 +2,7 @@
 
 ![Tumblr_l_943781129860804.jpg](https://github.com/user-attachments/assets/3a977f21-202c-4a79-a9a8-99847f271e63)
 
- # small intro
+ # <p align=center> small intro!
 
  - `hello !! I'm xolaris or xolar ^_^. I use any/all pronouns.` 
 
