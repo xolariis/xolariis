@@ -11,3 +11,4 @@
 <p align="center" dir="auto"> dnc , often with party & friends, interactions are fine when alone!
 
 <p align="center" dir="auto"> I make offensive jokes and in general an unserious person so please keep that in mind when interacting! 
+
