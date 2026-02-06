@@ -5,4 +5,6 @@
 
 <p align="center" dir="auto"> dnc , often with party & friends, interactions are fine when alone!
 
-I really enjoy ut/dr, crk, unstable smp, and pokemon.
+<p align="center" dir="auto"> I really enjoy ut/dr, crk, unstable smp, and pokemon ^_^
+
+<p align="center" dir="auto"> I make offensive jokes and in general an unserious person so please keep that in mind when interacting! 
