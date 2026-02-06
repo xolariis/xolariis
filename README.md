@@ -4,3 +4,5 @@
 ![Untitled304_20260122124746.png](https://github.com/user-attachments/assets/c040004e-c80f-4370-9d3c-36913d2ddce9)
 
 <p align="center" dir="auto"> dnc , often with party & friends, interactions are fine when alone!
+
+I really enjoy ut/dr, crk, unstable smp, and pokemon.
