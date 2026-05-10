@@ -19,7 +19,7 @@
 <details>
   <summary> ძᥒі</summary>
   
-  -14 , 20+ , homophobic, racist, transphobic, ableist, ect. not much of a dni, just don't be a weirdo towards me please ^_^"
+  -14 , 20+ , homophobic, racist, transphobic, ableist, ect. not much of a dni, just don't be a weirdo towards me please.
 </details>
 
 [atabook](https://xolaris.atabook.org/) </div>
