@@ -10,5 +10,16 @@
   xolar , any/all prns , nonbinary , 18 
 </details>
 
+<details>
+  <summary>byi</summary>
+  
+  I can sometimes make offensive jokes and have offensive humor in general, 
+</details>
+
+<details>
+  <summary> dni</summary>
+  
+  wip
+</details>
 
 [atabook](https://xolaris.atabook.org/) </div>
