@@ -1,7 +1,7 @@
 <div align ="center">
 
-![](https://komarev.com/ghpvc/?username=xolariis&color=F4E78D&label=❤︎)
+![](https://komarev.com/ghpvc/?username=xolariis&color=585C90&label=❤︎)
 
-![Untitled350_20260427012318.png](https://github.com/user-attachments/assets/6f38cfdc-e524-464d-a658-fb58016de12a) 
+![Untitled356_20260510160941.png](https://github.com/user-attachments/assets/cdb5333b-5d44-4e5e-b146-c172b8affb58) 
 
 [atabook](https://xolaris.atabook.org/) </div>
