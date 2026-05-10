@@ -5,9 +5,9 @@
 ![Untitled356_20260510160941.png](https://github.com/user-attachments/assets/9d3551dd-3d9b-461c-96c4-cdc9bffc57c0)
 
 <details>
-  <summary>Click here to see more!</summary>
+  <summary>about me</summary>
   
-  This content is hidden by default. You can put text, images, or even code here.
+  Xolar , any/all prns , nonbinary , 18 !!!
 </details>
 
 
