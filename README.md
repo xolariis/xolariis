@@ -13,13 +13,13 @@
 <details>
   <summary>ᑲᥡі</summary>
   
-  I can sometimes make offensive jokes and have offensive humor in general. I also get very anxious around new people so I may be awkward at first !! (if anything I do upsets you please let me know.)
+  ```I can sometimes make offensive jokes and have offensive humor in general. I also get very anxious around new people so I may be awkward at first !! (if anything I do upsets you please let me know.)```
 </details>
 
 <details>
   <summary> ძᥒі</summary>
   
-  -14 , 20+ , homophobic, racist, transphobic, ableist, ect. not much of a dni, just don't be a weirdo towards me please.
+  ```-14, 20+, homophobic, racist, transphobic, ableist, ect. not much of a dni, just don't be a weirdo towards me please.```
 </details>
 
 [atabook](https://xolaris.atabook.org/) </div>
