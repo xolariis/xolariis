@@ -7,7 +7,7 @@
 <details>
   <summary>about me</summary>
   
-  Xolar , any/all prns , nonbinary , 18 !!!
+  xolar , any/all prns , nonbinary , 18 
 </details>
 
 
