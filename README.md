@@ -7,14 +7,14 @@ ___
 <details>
   <summary> mᥱ!</summary>
   
-  ```xolar , any/all prns , nonbinary , 18 ```
+  >```xolar , any/all prns , nonbinary , 18 ```
 </details>
 
 <details>
   <summary>ᑲᥡі</summary>
   
 
-  ```I can sometimes make offensive jokes and have offensive humor in general. I also get very anxious around new people so I may be awkward at first !! (if anything I do upsets you please let me know.)```
+  >I can sometimes make offensive jokes and have offensive humor in general. I also get very anxious around new people so I may be awkward at first !! (if anything I do upsets you please let me know.)
 </details>
 
 
