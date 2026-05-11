@@ -11,9 +11,9 @@ ___
 </details>
 
 <details>
-  <summary>Click here to see more!</summary>
+  <summary>ᑲᥡі</summary>
   
-  This content is hidden by default. You can put text, images, or even code here.
+  I can sometimes make offensive jokes and have offensive humor in general. I also get very anxious around new people so I may be awkward at first !! (if anything I do upsets you please let me know.)
 </details>
 
 
