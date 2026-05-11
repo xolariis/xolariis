@@ -7,7 +7,7 @@ ___
 <details>
   <summary> mᥱ!</summary>
   
-  >```xolar , any/all prns , nonbinary , 18 ```
+  >xolar , any/all prns , nonbinary , 18 
 </details>
 
 <details>
