@@ -11,8 +11,6 @@ ___
 </details>
 
 <details>
-
-<details>
   <summary>Click here to see more!</summary>
   
   This content is hidden by default. You can put text, images, or even code here.
