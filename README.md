@@ -14,9 +14,9 @@ ___
   >crk, deltarune, undertale, uusmp, sfawtde, pokemon, fnaf, mlp, and ultrakill.
 </details>
 <details>
-  <summary> mᥱ!</summary>
+  <summary> kins</summary>
   
-  >xolar , any/all prns , nonbinary , 18 
+  >berdly(heavykin.) , pure vanilla , espresso , planetlord , ranpo , atsushi
 </details>
 </details>
 
