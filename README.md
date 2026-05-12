@@ -8,6 +8,11 @@ ___
   <summary> mᥱ!</summary>
   
   >xolar , any/all prns , nonbinary , 18 
+<details>
+  <summary> mᥱ!</summary>
+  
+  >xolar , any/all prns , nonbinary , 18 
+</details>
 </details>
 
 <details>
