@@ -16,7 +16,7 @@ ___
 <details>
   <summary> kins</summary>
   
-  >berdly(heavykin.) , pure vanilla , espresso , planetlord , ranpo , atsushi
+  >berdly(heavykin) doubles iwc and yumes dni. , pure vanilla , espresso , planetlord , ranpo , atsushi
 </details>
 </details>
 
