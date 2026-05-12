@@ -16,7 +16,8 @@ ___
 <details>
   <summary> kins</summary>
   
-  >berdly (heavykin) doubles iwc and yumes dni. 
+  >**berdly** (heavykin) doubles iwc and yumes dni. 
+
 pure vanilla , espresso , planetlord , ranpo , atsushi
 </details>
 </details>
