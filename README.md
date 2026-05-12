@@ -13,6 +13,11 @@ ___
   
   >crk, deltarune, undertale, uusmp, sfawtde, pokemon, fnaf, mlp, and ultrakill.
 </details>
+<details>
+  <summary> mᥱ!</summary>
+  
+  >xolar , any/all prns , nonbinary , 18 
+</details>
 </details>
 
 <details>
