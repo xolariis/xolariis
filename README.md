@@ -9,9 +9,9 @@ ___
   
   >xolar , any/all prns , nonbinary , 18 
 <details>
-  <summary> mᥱ!</summary>
+  <summary> interests</summary>
   
-  >xolar , any/all prns , nonbinary , 18 
+  >crk, deltarune, undertale, uusmp, sfawtde, pokemon, fnaf, mlp, and ultrakill.
 </details>
 </details>
 
