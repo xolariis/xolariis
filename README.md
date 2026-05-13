@@ -11,7 +11,7 @@ ___
 <details>
   <summary> interests</summary>
   
-  >crk, deltarune, undertale, bsd, uusmp, sfawtde, pokemon, fnaf, mlp, danganronpa, and ultrakill.
+  >crk, deltarune, undertale, bsd, uusmp, sfawtde, pokemon, fnaf, mlp, ddlc, danganronpa, and ultrakill.
 </details>
 <details>
   <summary> kins</summary>
