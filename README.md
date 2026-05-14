@@ -1,6 +1,6 @@
 <div align ="center">
 
-![](https://komarev.com/ghpvc/?username=xolariis&color=585C90&label=❤︎)
+![](https://komarev.com/ghpvc/?username=xolariis&color=9B998C&label=❤︎)
 
 ![Untitled359_20260514012708.png](https://github.com/user-attachments/assets/442f7619-8c0c-4989-add4-a8a96332f436)
 ___
