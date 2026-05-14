@@ -5,7 +5,7 @@
 ![Untitled359_20260514012708.png](https://github.com/user-attachments/assets/442f7619-8c0c-4989-add4-a8a96332f436)
 ___
 <details>
-  <summary> mᥱ!</summary>
+  <summary> ᵃᵇᵒᵘᵗ ᵐᵉ</summary>
   
   >xolar , any/all prns , nonbinary , 18 
 <details>
@@ -23,7 +23,7 @@ ___
 </details>
 
 <details>
-  <summary>ᑲᥡі</summary>
+  <summary>ᵇʸᶦ</summary>
   
 
   >I can sometimes make offensive jokes and have offensive humor in general. I also get very anxious around new people so I may be awkward at first !! (if anything I do upsets you please let me know.)
@@ -31,7 +31,7 @@ ___
 
 
 <details>
-  <summary> ძᥒі</summary>
+  <summary> ᵈⁿᶦ</summary>
   
   >-14, 20+, homophobic, racist, transphobic, ableist, ect. not much of a dni, just don't be a weirdo towards me please.
 </details>
