@@ -44,4 +44,4 @@ ___
 
 ___
 
-[atabook](https://xolaris.atabook.org/) [straw] (https://xolaris.straw.page) </div> 
+[atabook](https://xolaris.atabook.org/) [straw](https://xolaris.straw.page) </div> 
