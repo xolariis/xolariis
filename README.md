@@ -20,7 +20,13 @@ ___
 
 >pure vanilla , espresso , planetlord , ranpo , atsushi
 </details>
+
+<details>
+  <summary>Click to expand</summary>
+  
+  This content is hidden by default. You can use standard Markdown here!
 </details>
+
 
 <details>
   <summary>ᵇʸᶦ</summary>
