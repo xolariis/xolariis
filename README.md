@@ -23,6 +23,12 @@ ___
 </details>
 
 <details>
+  <summary> ᵃᵇᵒᵘᵗ ᵐᵉ</summary>
+  
+  >xolar , any/all prns , nonbinary , 18 
+<details>
+
+<details>
   <summary>𝘣𝘺𝘪</summary>
   
 
