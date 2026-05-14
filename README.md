@@ -22,12 +22,6 @@ ___
 </details>
 </details>
 
-<details>
-  <summary>ᵖᵒⁿʸᵗᵒʷⁿ</summary>
-
-  
-  >xolar , any/all prns , nonbinary , 18 
-<details>
 
 <details>
   <summary>ᵇʸᶦ</summary>
