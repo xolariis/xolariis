@@ -28,6 +28,7 @@ ___
   >xolar , any/all prns , nonbinary , 18 
 <details>
 
+<details>
   <summary>ᵇʸᶦ</summary>
   
 
