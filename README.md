@@ -8,18 +8,6 @@ ___
   <summary> ᵃᵇᵒᵘᵗ ᵐᵉ</summary>
   
   >xolar , any/all prns , nonbinary , 18 
-<details>
-  <summary> ᶦⁿᵗᵉʳᵉˢᵗˢ</summary>
-  
-  >crk, deltarune, undertale, bsd, uusmp, lifesteal, sfawtde, pokemon, fnaf, mlp, ddlc, danganronpa, and ultrakill.
-</details>
-<details>
-  <summary> ᵏᶦⁿˢ</summary>
-  
-  >**berdly** (heavykin) doubles iwc and yumes dni
-
->pure vanilla , espresso , planetlord , ranpo , atsushi
-</details>
 </details>
 
 <details>
