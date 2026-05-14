@@ -23,7 +23,7 @@ ___
 </details>
 
 <details>
-  <summary>ᵇʸᶦ</summary>
+  <summary>𝘣𝘺𝘪</summary>
   
 
   >I can sometimes make offensive jokes and have offensive humor in general. I also get very anxious around new people so I may be awkward at first !! (if anything I do upsets you please let me know.)
@@ -31,7 +31,7 @@ ___
 
 
 <details>
-  <summary> ᵈⁿᶦ</summary>
+  <summary> 𝘥𝘯𝘪</summary>
   
   >-14, 20+, homophobic, racist, transphobic, ableist, ect. not much of a dni, just don't be a weirdo towards me please.
 </details>
