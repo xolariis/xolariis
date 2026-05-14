@@ -21,11 +21,13 @@ ___
 >pure vanilla , espresso , planetlord , ranpo , atsushi
 </details>
 </details>
+
 <details>
   <summary> ᵃᵇᵒᵘᵗ ᵐᵉ</summary>
   
   >xolar , any/all prns , nonbinary , 18 
-<details>
+</details>
+
 <details>
   <summary>ᵇʸᶦ</summary>
   
