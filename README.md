@@ -25,11 +25,9 @@ ___
 <details>
   <summary>ᵖᵒⁿʸᵗᵒʷⁿ</summary>
   
-  ‎ >‎freely c+h unless with friends, im usually offtab so w2i always !! im usually around crk, mcyt, utdr, outside bakery, or wandering around. usually with my party!
-</details>
-
-
+  >xolar , any/all prns , nonbinary , 18 
 <details>
+
   <summary>ᵇʸᶦ</summary>
   
 
