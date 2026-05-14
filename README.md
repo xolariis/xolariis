@@ -23,9 +23,9 @@ ___
 </details>
 
 <details>
-  <summary>Click to expand</summary>
+  <summary>ᵖᵒⁿʸᵗᵒʷⁿ</summary>
   
-  This content is hidden by default. You can use standard Markdown here!
+  >freely c+h unless with friends, im usually offtab so w2i always !! im usually around crk, mcyt, utdr, outside bakery, or wandering around. usually with my party!
 </details>
 
 
