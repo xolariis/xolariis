@@ -9,12 +9,12 @@ ___
   
   >xolar , any/all prns , nonbinary , 18 
 <details>
-  <summary> interests</summary>
+  <summary> ᶦⁿᵗᵉʳᵉˢᵗˢ</summary>
   
   >crk, deltarune, undertale, bsd, uusmp, lifesteal, sfawtde, pokemon, fnaf, mlp, ddlc, danganronpa, and ultrakill.
 </details>
 <details>
-  <summary> kins</summary>
+  <summary> ᵏᶦⁿˢ</summary>
   
   >**berdly** (heavykin) doubles iwc and yumes dni
 
@@ -23,7 +23,7 @@ ___
 </details>
 
 <details>
-  <summary>𝘣𝘺𝘪</summary>
+  <summary>ᵇʸᶦ</summary>
   
 
   >I can sometimes make offensive jokes and have offensive humor in general. I also get very anxious around new people so I may be awkward at first !! (if anything I do upsets you please let me know.)
@@ -31,7 +31,7 @@ ___
 
 
 <details>
-  <summary> 𝘥𝘯𝘪</summary>
+  <summary> ᵈⁿᶦ</summary>
   
   >-14, 20+, homophobic, racist, transphobic, ableist, ect. not much of a dni, just don't be a weirdo towards me please.
 </details>
