@@ -2,7 +2,8 @@
 
 ![](https://komarev.com/ghpvc/?username=xolariis&color=FFFFFF&label=❤︎)
 
-![Untitled401_20260627223319.png](https://github.com/user-attachments/assets/727b3242-3a51-4cec-9108-41f57e9bb08d)
+![Untitled401_20260627223319.png](https://github.com/user-attachments/assets/f6b786e7-4c62-4d1d-81aa-52289853a599)
+
 
 <details>
   <summary> ᵖᵒⁿʸ ᵗᵒʷⁿ</summary>
