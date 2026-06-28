@@ -12,5 +12,4 @@
 </details>
 
 ---
-
 [atabook](https://xolaris.atabook.org/)‎ ‎ ‎ ‎ ‎ ‎  [strawpage](https://xolaris.straw.page) </div> 
