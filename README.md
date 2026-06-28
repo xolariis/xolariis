@@ -2,7 +2,8 @@
 
 ![](https://komarev.com/ghpvc/?username=xolariis&color=9B998C&label=❤︎)
 
-![Untitled359_20260514012708.png](https://github.com/user-attachments/assets/442f7619-8c0c-4989-add4-a8a96332f436)
+![Untitled401_20260627223319.png](https://github.com/user-attachments/assets/727b3242-3a51-4cec-9108-41f57e9bb08d)
+
 ___
 
 <details>
