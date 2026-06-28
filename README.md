@@ -10,8 +10,6 @@
   > freely c+h unless with friends! I'm mainly wandering around with my party or alone in crk, hoyo, mcyt, or deltarune. Please dont copy my skins at all. Please don't come up to me in a weird way if I don't know you. Otherwise, don't be afraid to interact! 
 </details>
 
-.
-
 ___
 
 [atabook](https://xolaris.atabook.org/)‎ ‎ ‎ ‎ ‎ ‎  [strawpage](https://xolaris.straw.page) </div> 
