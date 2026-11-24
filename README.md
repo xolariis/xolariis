@@ -2,14 +2,14 @@
 
 ![](https://komarev.com/ghpvc/?username=xolariis&color=FFFFFF&label=❤︎)
 
-![Untitled428_20260803012153.png](https://github.com/user-attachments/assets/a6e5cfe1-3337-46d1-a8f9-335b24ada2ac)
+![Untitled486_20261124041538.png](https://github.com/user-attachments/assets/81f45b14-d1f0-4ddb-a018-13e7d610611a)
 
 ---
 
 <details>
-  <summary> ᵖᵒⁿʸ ᵗᵒʷⁿ</summary>
+  <summary> p᥆nyt᥆wn</summary>
   
-  > freely c+h unless with friends! I'm mainly wandering around with my party or alone in crk, hoyo, mcyt, or deltarune. Please dont copy my skins at all. Please don't come up to me in a weird way if I don't know you. Otherwise, don't be afraid to interact! 
+  > freely c+h unless with friends, usually sitting in fandom areas. Do not copy/inpso off my skins, atleast ask. Don't approach me in a weird way if i'm not familiar with you, you'll just get ignored. Otherwise, don't be afraid to interact !
 </details>
 
 ---
